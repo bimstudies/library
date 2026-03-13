@@ -18,7 +18,6 @@ What is the passing grade for BIM? Students must secure a minimum Grade of 'B' o
 
  	
 Is CMAT required for BIM admission? Yes, a minimum of 40% in the Central Management Admission Test (CMAT) is required for eligibility.
-
 [themoneytizer id="139124-1"]
 
 ### Semester I: Course Breakdown
